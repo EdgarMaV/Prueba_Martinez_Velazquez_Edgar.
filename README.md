@@ -1,12 +1,12 @@
 # Metas para 2023
-#Metas
+# Metas
 1:Poder pasar el segundo y tercer semestre sin ningún tipo de problemas 
 
 2:Llegar a ir a la nasa 
 
 3:Poder comprar unas cuantas cosas que quiero
 
-#Obstaculos 
+# Obstaculos 
 
 1:Las dificultades para algunas materias que tengo que ir arreglando para poder progresar
 
